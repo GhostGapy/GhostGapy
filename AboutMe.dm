@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GhostGapy
+- 👀 I’m interested in computer science / programming
+- 🏩 I go to Elektro in računalniška šola - Šolski center Velenje / Electrical and Computer School - School center Velenje
+- 📫 You can reach me on Discord: Gapy#1176 or on mail: gmelansek@gmail.com
